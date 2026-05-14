@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with updated Polymarket Algorithm | trade-sniping + take-profit-orders, the #1 algorithm. Includes trade-sniping and take-profit-orders for a
 
 
 
